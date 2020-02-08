@@ -1,0 +1,1 @@
+# goodworqz.js
